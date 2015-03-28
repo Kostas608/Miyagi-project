@@ -1,3 +1,10 @@
 # Miyagi-project
 Online platform for skill trading
-first
+A
+A
+B
+B
+B
+C
+C
+firsdsdsdsdsdsdsdsdsdsdsdst
